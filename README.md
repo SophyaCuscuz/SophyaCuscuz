@@ -1,4 +1,4 @@
-## "Se você quiser... Eu posso até... Continuar essa canção pra fazer você gostar de MIM... Assim..." - Gostar de MIm (Grilo) 
+## "Se você quiser... Eu posso até... Continuar essa canção! E ṕra fazer você gostar de MIM... Assim..." - Gostar de MIm (Grilo) 
 
 <!--
 **SophyaCuscuz/SophyaCuscuz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
